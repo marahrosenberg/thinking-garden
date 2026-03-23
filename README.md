@@ -108,12 +108,10 @@ thinking-garden/
 
 CC BY-NC 4.0 — free to use and adapt with attribution. Not for commercial use without permission.
 
-For licensing inquiries: hello@liminalliving.org
-
+For licensing inquiries: marah.rosenberg+liminalskill@gmail.com
 ---
 
 ## About Liminal Living
 
-Liminal Living is a practice built on treating human capacity as the core system rather than a variable to manage around. We work at the intersection of organizational dynamics, grief literacy, and systems thinking.
+Liminal Living is a practice of presence built on treating human capacity as the core system rather than a variable to manage around. We work at the intersection of organizational dynamics, grief literacy, and systems thinking.
 
-[liminalliving.org](https://liminalliving.org)
